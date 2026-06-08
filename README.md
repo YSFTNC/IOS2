@@ -5,3 +5,5 @@
 22290071-Yusuf Tunç-IOS2 Dersi-05.04-V3 (kargala) --> https://youtu.be/XJBzkEejsbU
 
 22290071-Yusuf Tunç-IOS2 Dersi-17.04-V4 (kargala) ---> https://youtu.be/E1zcP_ba_q8
+
+22290071-Yusuf Tunç-IOS2 Dersi-08.06-V5 (kargala) ---> https://www.youtube.com/shorts/Bu2aCDuJMAQ
